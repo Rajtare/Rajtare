@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **rajtare777@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://bit.ly/3z06c2n)
+- 📄 My [Resume](https://bit.ly/3z06c2n)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
